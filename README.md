@@ -1,0 +1,1 @@
+# verianalizi_hafta3_odev
